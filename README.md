@@ -1,1 +1,1 @@
-# takue-world
+# takue-world I'm a teenage boy who stays in Zimbabwe. I'm 15 years old and attending form 3 in my high school. I'm intersted in using GitHub and learning more about it. I am talented in singing and hopefully some day i become a huge figure to people in the world so my aim is to start small.
